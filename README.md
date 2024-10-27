@@ -1,2 +1,4 @@
-![6b050d4511984c15407e7cb1bab25d03](https://github.com/witchsheart/witchsheart/assets/128258442/f50cfe4b-1fee-4c4e-81e1-63e79f958ab0) i dontread rentries if you have sum longass dni and im on it js tell me
+
+https://github.com/user-attachments/assets/77f87413-e3fc-4878-98e3-8abce0c6f4bb
+
 
